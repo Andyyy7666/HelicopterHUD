@@ -15,7 +15,7 @@ https://discord.gg/Z9Mxu72zZ6
 * Airspeed display
 
 # Video preview:
-https://youtu.be/catnx5rCtQw
+https://youtu.be/jphoddvr-4Y
 
 # Image preview:
 https://i.imgur.com/mfI55Kv.png
